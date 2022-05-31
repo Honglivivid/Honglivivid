@@ -19,3 +19,4 @@ https://honglivivid.github.io/Honglivivid/
 
 ### 打赏二维码
 
+![image](https://github.com/Honglivivid/Honglivivid/blob/gh-pages/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20220531120045.jpg)
